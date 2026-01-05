@@ -66,7 +66,7 @@ not just analyzing a single matrix.
 
 ---
 
-🔗 **GitHub Repository**
+🔗 **Linkedin**
 -
 👉 www.linkedin.com/in/ahmad-sindi-61550b325
 
